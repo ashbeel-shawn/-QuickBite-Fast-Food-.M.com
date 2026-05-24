@@ -1,1 +1,1 @@
-# -QuickBite-Fast-Food-.M.com
+# -QuickBite-Fast-Food-.com
